@@ -1,0 +1,4 @@
+- Nama  : Taufiq Hidayat
+- NIM   : 13221044
+- Harapan masuk divkom  : jadi fulstek webdev fixgol dapet proyek gede kaya raya bisa nganterin ortu naik haji aamiin
+- Perasaan hari ini : senang hepi kiyowo
